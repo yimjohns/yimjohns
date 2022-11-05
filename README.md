@@ -15,7 +15,7 @@ Generally speaking,
 
 - My ultimate ambition is to be pleasing to God and to do my work as though it is unto the Lord!
 
-Having said all that, you may continue to explore and if you wish to know more about me, just reach out.
+Having said all that, you may continue to explore and if you wish to know more about me, please feel free to reach out.
 
 <!--
 **yimjohns/yimjohns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
