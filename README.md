@@ -1,5 +1,5 @@
 ### Hi there 👋
-My name is Johnson, well - I have different names, some call me 'Yimika, officially, I am Babajide Johnson Odejide. Anyways, I prefer ***Oluwayimika*** but if that's difficult to pronounce, just call me Johnson 😄 
+My name is Johnson, well - I have different names, some call me 'Yimika. Officially, I am Babajide Johnson Odejide. Anyways, I prefer ***Oluwayimika*** but if that's difficult to pronounce, just call me Johnson 😄 
 
 I am a multilingual software systems analyst now turning statistical sleuth (Data Scientist) with a concentration on Business Analytics.
 
